@@ -16,3 +16,6 @@ https://www.dropbox.com/scl/fi/qhp14fzdjhcvsaz6ykj2c/Chevrolet_Caprice_FIRBY-3.z
 (hilks1997)
 
 https://www.dropbox.com/scl/fi/bm07ibre6e5az7buc535o/Toyota-Hilux-1997.zip?rlkey=e0996we3y5t2b1dewc1f7l86r&st=u1bomrrg&dl=1
+
+(HILKS 4x4)
+https://www.dropbox.com/scl/fi/21716dg0bv9ym8mbextaa/2012-Toyota-Hilux-Double-Cab.zip?rlkey=nlyxr0r9xg2geezvxcj4eu3qy&st=7go0f5zu&dl=1
